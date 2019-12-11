@@ -1,1 +1,0 @@
-# Trabajos-2-ilustraci-n
